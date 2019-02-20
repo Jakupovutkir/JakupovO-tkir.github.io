@@ -1,2 +1,2 @@
-# JakupovO-tkir.github.io
-Это Мой первый сайт 
+Utkir Jakupov
+Это Мой первый сайт ....///
